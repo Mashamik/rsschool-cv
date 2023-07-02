@@ -1,5 +1,7 @@
 # *Мария*
-!![DSC_1222-1 ](https://github.com/Mashamik/rsschool-cv/assets/137713871/e93bf093-6f71-4ad9-a214-5b46d4de9d83)
+![cde4f45ef39f76ed043f1453fc9ac671](https://github.com/Mashamik/rsschool-cv/assets/137713871/f28d94e0-e79f-442e-860e-11c264b74be0)
+
+
 
 ****
 #### Контакты:  manynay.m7@gmail.com
